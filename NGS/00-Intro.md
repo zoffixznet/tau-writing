@@ -43,7 +43,7 @@ Then, the vat.
 
 
 — "So that's how we died, boys"—the Cheif proclaimed, putting away the tablet<br>
-— "Yeah, brutal!" a voice from the middle of the group jabs. "I feel like going for some BBQ, anyone else? How about you Chief? Or would you rather go for a kebob?"
+— "Yeah, brutal!" a voice from the middle of the group jabs. "I feel like going for some BBQ! Anyone else? How about you Chief? Or would you rather go for a kebob?"
 
 The group laughs.
 
