@@ -7,7 +7,7 @@ The figure slowly turns. He smirks.
 the lips of painted saints and angels, then finally enveloping the officers in a blanket of serenity.
 
 A calm moment languidly evaporates and the Chief makes a quick hand gesture to
-the other officers to move in. The figure makes a step and raises the blade, which instantly consumes the room in an blinding flash of thousands thin
+the other officers to move in. The figure makes a step and raises the blade, which instantly consumes the room in an blinding flash of a thousand thin
 beams.
 
 The Chief blinks away the sharp pain as his vision slowly returns. His breathing, accelerated by the commotion, detects the smell of seared flesh. A drop of sweat rolling over his lips stifles a yelp of horror, as cauterized chunks of human flesh piled around him stare back at him, as silent as the condemnation of the saints on the walls. The figure closes in.
