@@ -25,9 +25,13 @@ The pain. The pain. The pain.
 
 Tear. Tear.
 
-The bone. The blood.
+Bone.
 
-Then—nothing.
+Blood.
+
+Then…
+
+Nothing.
 
 …
 
