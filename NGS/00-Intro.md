@@ -10,7 +10,7 @@ A calm moment languidly evaporates and the Chief makes a quick hand gesture to
 the other officers to move in. The figure makes a step and raises the blade, which instantly consumes the room in an blinding flash of thousands thin
 beams.
 
-The Chief blinks away the sharp pain as his vision slowly returns. His breathing, accelerated by the commotion, detects the smell of seared flesh. A drop of sweat rolling over his lips stifles a yelp of horror, as cauterized chunks of human flesh piled around him, stare back at him, as silent as the condemnation of the saints on the walls. The figure closes in.
+The Chief blinks away the sharp pain as his vision slowly returns. His breathing, accelerated by the commotion, detects the smell of seared flesh. A drop of sweat rolling over his lips stifles a yelp of horror, as cauterized chunks of human flesh piled around him stare back at him, as silent as the condemnation of the saints on the walls. The figure closes in.
 
 "The heart of Hell itself is not a punishment severe enough for those who desecrate the Holy House of The God," the Chief castigates the figure.
 
