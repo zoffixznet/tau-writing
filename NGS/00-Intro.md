@@ -1,5 +1,5 @@
 
-"Alright, buddy, put the weapon down!" the Chief shouts at the back of a lanky figure standing next to a limp body, holding a thin, 14 inch blade in his hand. The damp air bounces the words against the cold, unfeeling walls of the church. "Let us help you; we… we don't want to hurt you," the Chief continues in a cooler tone of voice, as rushed footsteps of several more officers entering the building create a dancing cacophony of reverberating sound.
+"Alright, buddy, put the weapon down!" the Chief shouts at the back of a lanky figure standing next to a limp body, holding a thin, 16 inch blade in his hand. The damp air bounces the words against the cold, unfeeling walls of the church. "Let us help you; we… we don't want to hurt you," the Chief continues in a cooler tone of voice, as rushed footsteps of several more officers entering the building create a dancing cacophony of reverberating sound.
 
 The figure slowly turns. He smirks.
 
