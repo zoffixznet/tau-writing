@@ -19,7 +19,7 @@ The Chief blinks away the sharp pain as his vision slowly returns. His breathing
 — "The are no gods. There are only the men who invent them and the fools who belive in them. One day—you will accept that."
 
 The Chief feels the blade inexorably move through his jaw, his cheek, his brow. The cracking of the bone both felt and heard for a few moments before the pain sets in—as sharp as the cold piece of metal now sitting a hairwidth away from
-his right eyeball. With surprising strength, the figure raises the Chief few inches above ground, causing the fragile skull to start to tear away.
+his right eyeball. In a soothing stream, the warm blood rushes down the Chief's neck and chest. With surprising strength, the figure raises the Chief several inches above ground, causing the fragile skull to start to tear away.
 
 The pain. The pain. The pain.
 
